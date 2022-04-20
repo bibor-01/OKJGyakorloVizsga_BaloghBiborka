@@ -1,1 +1,1 @@
-# OKJGyakorloVizsga_BaloghBiborka
+# Balogh Bíborka
